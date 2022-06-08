@@ -10,7 +10,7 @@ The terms used in this Privacy Policy have the same meanings as in our Terms and
 
 Information Collection and Use
 
-If the user wants to delete collected data they are allowed to by any means. Go uninstall FROG FLYERS IF YOU WANT TO DELETE USER DATA!
+When you Download Frog Flyers all your data can be deleted including log data can be deleted YOU CAN DELETE ANY DATA THAT WE COLLECT BY ANY MEANS DELETE IT!
 
 For a better experience, while using our Service, we may require you to provide us with certain personally identifiable information, including but not limited to Usernames. The information that we request will be retained by us and used as described in this privacy policy.
 
